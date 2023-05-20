@@ -1,0 +1,1 @@
+# talent-stone-assessment-2
